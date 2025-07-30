@@ -10,7 +10,7 @@ I can get overwhelmed or uncomfortable so sometimes if you start talking to me I
 
 If I say something that mightve made you uncomfortable PLEASE TELL ME so I can never say it again because I do not want to make anyone uncomfortable.
 
-This may seem funny but I have this thing what I call The Tweaking Hour which is at like very late at night/midnight (11pm-3am) SOMEHWRE AROUND THAT TIME I start to disconnect from reality I DONT KNOW HOW TO DESCRIBE IT BUT SOMETHING LIKE THAT like Im starting to feel that im not real and may do strange stuff at those times So if you notice me acting strange PLEASE ignore that.
+This may seem funny but I have this thing what I call The Tweaking Hour which is at like very late at night/midnight (11pm-3am) SOMEHWRE AROUND THAT TIME I MAY start to disconnect from reality I DONT KNOW HOW TO DESCRIBE IT BUT SOMETHING LIKE THAT like Im starting to feel that im not real and may do strange stuff at those times So if you notice me acting strange PLEASE ignore that.
 
 W2I is reccommended because im often offtab 0_o
 
