@@ -1,4 +1,4 @@
-bee or rex he/she omnisexual+demigirl+orchidsexual && Artist 
+[bee](https://pronouns.cc/@sws) or rex he/she omnisexual+demigirl+orchidsexual && Artist 
 
 Main interest: Bandom . list of artists i listen to are [here](https://rentry.co/went)
 
