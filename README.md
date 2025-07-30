@@ -1,6 +1,6 @@
 [bee](https://pronouns.cc/@sws) or rex he/she omnisexual+demigirl+orchidsexual && Artist 
 
-Main interest: Bandom . list of artists i listen to are [here](https://rentry.co/went)
+Main interest: Bandom . list of music artists i listen to are [here](https://rentry.co/went)
 
 **Before You Interact**: I play ponytown 24/7 (Yeah Im unemployed) And im usually sitting at bandom or near squid game area or just where my friends are lol
 
