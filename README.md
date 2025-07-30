@@ -1,4 +1,4 @@
-bee or rex he/she omnisexual+demigirl+orchidsexual
+bee or rex he/she omnisexual+demigirl+orchidsexual && Artist 
 
 Main interest: Bandom . list of artists i listen to are [here](https://rentry.co/went)
 
