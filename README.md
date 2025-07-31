@@ -1,4 +1,4 @@
-[bee](https://pronouns.cc/@sws) or rex he/she omnisexual+demigirl+orchidsexual && Artist 
+[bee](https://pronouns.cc/@sws) or rex he/she omnisexual+demigirl+orchidsexual && Artist (learning how to draw poses and HANDS. I hate hands.
 
 Main interest: Bandom . list of music artists i listen to are [here](https://rentry.co/went)
 
